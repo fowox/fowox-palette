@@ -1,0 +1,1 @@
+# fowoX palette
